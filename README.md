@@ -1,1 +1,1 @@
-The code will come soon by the end of October.
+The code will come soon upon publication.
