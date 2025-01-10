@@ -1,1 +1,1 @@
-The code will come soon upon publication.
+The code will come soon upon paper publication.
